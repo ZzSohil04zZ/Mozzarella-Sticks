@@ -1,0 +1,11 @@
+Steps :
+->Take 3 bowls 
+->Put Flour, breadcrumbs and eggs in each
+->Season the flour with Pepper and Garlic powder
+->Take the Mozzarella cheese and slice it into sticks
+->Now take your Sticks and first put them in flour then eggs > breadcrumbs > egg > breadcrumbs
+->Do the same with rest of stick
+->refrigerate the sticks for 4-6 hours    
+->pour vegetable oil in a pan and pre heat for 30 seconds
+->put the sticks in pan and let it fry for 2 minutes
+->The Dish Is Ready !!!
